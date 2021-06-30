@@ -6,8 +6,8 @@ N'hésitez pas à nous contacter
 - Contact : Quentin Bohe 
   - Email : commercial@expaceo.com
 
-- Formateur : Yannick Willi
-  - Email : yannick.willi@expaceo.com
+- Formateur : Julien Alborghetti
+  - Email : julien.alborghetti@expaceo.com
 
 # Les liens évoqués pendant la formation
 
